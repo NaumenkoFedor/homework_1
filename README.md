@@ -1,1 +1,1 @@
-# Naumenko Fedor
+# Fedor
